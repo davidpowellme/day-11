@@ -6,6 +6,72 @@ The customers seemed to be a mix of part-timers and tech employees on their lunc
 
 The food was decent, but I understand why people think it's expensive for what you get. Plating is a big deal, and these were served in pie pans and tin foil. I got the impression this a place that doesn't have a firm identity and is satisfied that it's making money.
 
+##Interview with Zach Adams, Owner
+
+1. What do you do? 
+    + Production - handmaking pasta every day selling it out of a window 
+    + deep in actual work of - no romantic
+
+2. Share 5 adjectives that you think describe your company
+    + Attentiveness
+    + Quality
+    + Honesty
+    + Delicious
+    + driven (passionate)
+
+3. What experience are you trying to give?
+    + Complete culinary satifaction - full
+    + Happy with decision to choose his
+
+4. What problem are you trying to solve?
+    + Long wait/ticket times
+    + Burned or bad food
+    + Everyone in the business is a problem solver
+
+5. What's the biggest obstacle that you find for the business?
+    + Space constraint
+    + Trailer is squeezing them
+    + It’s a trailer and they’re doing as much as they can
+    + Need a building offsite
+
+6. What do you wish people knew before visiting that they don't?
+    + Beverage policy - BYOB
+    + Would create more of the atmosphere that he wants
+    + People look at pictures online and get a different idea of what they’re going to get
+    + Yelp, other places send different messages
+    + Tough to get people to choose anything other than ravioli (menu items)
+
+7. Share 5 adjectives that describe your current customer
+    + Pleasant
+    + Patient
+    + Varied - all walks of life - not young or old
+    + Informed - smart people come here
+
+8. how do you want to be perceived by customers?
+    + Don’t want it to be considered “frou frou”
+    + More practical - not “proper italian” name so that it’s accessible
+    + Approachable no. 1
+
+9. who is your competition?
+    + Other trailers
+    + Not same cuisine
+    + No other italian food trailers in his radius
+    + In competition with all austin food trailers
+    + Italian joints on south congress
+    + Boticellis
+    + No direct competitor
+
+10. When are most people visiting this truck?
+    + Dinner time - early wave then late wave
+    + 5-6
+    + 8-9
+
+
+
+
+
+
+
 ##SWOT Analysis
 
 ###Strengths
